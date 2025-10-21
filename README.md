@@ -1,0 +1,2 @@
+# Applikata.
+Applikata oqiw orayi
